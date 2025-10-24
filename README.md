@@ -31,3 +31,18 @@
 30) rent a girlfreind
 31) lord of the mysteries
 32) takopi's original sin
+33) Please Put Them On, Takamine-san
+34) classroom of the elite
+35) oshi no ko
+36) your lie in April
+37) mashle magic and muscle
+38) made in abyss (half)
+39) prison school
+40) overflow
+41) slime diaries
+42) Komi Can't Communicate
+43) Hotarubi no Mori e
+44) Zom 100: Bucket List of the Dead
+45) In Another World With My Smartphone
+46) redo of healer
+47) another world pharmacy
