@@ -19,3 +19,15 @@
 18) grave of fireflies
 19) lookback
 20) spy x family
+21) words bubble up like soda pop
+22) bleach
+23) josee the tiger and the fish
+24) demon slayer
+25) jujutsu kaisen
+26) solo leveling
+27) dan da dan
+28) death note
+29) death parade
+30) rent a girlfreind
+31) lord of the mysteries
+32) takopi's original sin
