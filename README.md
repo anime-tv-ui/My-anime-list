@@ -47,3 +47,4 @@
 46) redo of healer
 47) another world pharmacy
 48) The Dangers in My Heart
+49) Tonari no Seki‑kun: The Master of Killing Time
