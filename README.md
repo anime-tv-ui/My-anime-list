@@ -50,7 +50,7 @@
 49) Tonari no Seki‑kun: The Master of Killing Time
 50) isekai quartet
 51) I Got a Cheat Skill in Another World and Became Unrivaled in the Real World, Too
-52) 
+52) My Life as Inukai-san’s Dog
 manga series:
 53) solo leveling: ragnarok
 54) penthouse
