@@ -48,3 +48,11 @@
 47) another world pharmacy
 48) The Dangers in My Heart
 49) Tonari no Seki‑kun: The Master of Killing Time
+50) isekai quartet
+manga series:
+51) solo leveling: ragnarok
+52) penhouse
+53) water overflow
+54) step mothers freinds
+55) leviathon
+56) lookism
