@@ -53,7 +53,7 @@
 52) 
 manga series:
 53) solo leveling: ragnarok
-54) penhouse
+54) penthouse
 55) water overflow
 56) step mothers freinds
 57) leviathon
