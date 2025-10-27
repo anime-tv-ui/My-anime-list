@@ -49,10 +49,12 @@
 48) The Dangers in My Heart
 49) Tonari no Seki‑kun: The Master of Killing Time
 50) isekai quartet
+51) I Got a Cheat Skill in Another World and Became Unrivaled in the Real World, Too
+52) 
 manga series:
-51) solo leveling: ragnarok
-52) penhouse
-53) water overflow
-54) step mothers freinds
-55) leviathon
-56) lookism
+53) solo leveling: ragnarok
+54) penhouse
+55) water overflow
+56) step mothers freinds
+57) leviathon
+58) lookism
