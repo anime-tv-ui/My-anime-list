@@ -51,10 +51,11 @@
 50) isekai quartet
 51) I Got a Cheat Skill in Another World and Became Unrivaled in the Real World, Too
 52) My Life as Inukai-san’s Dog
+53) re:zero
 manga series:
-53) solo leveling: ragnarok
-54) penthouse
-55) water overflow
-56) step mothers freinds
-57) leviathon
-58) lookism
+54) solo leveling: ragnarok
+55) penthouse
+56) water overflow
+57) step mothers freinds
+58) leviathon
+59) lookism
