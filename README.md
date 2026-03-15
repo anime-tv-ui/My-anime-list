@@ -52,10 +52,13 @@
 51) I Got a Cheat Skill in Another World and Became Unrivaled in the Real World, Too
 52) My Life as Inukai-san’s Dog
 53) re:zero
+54) dr. stone
+55) mushukoi tensei
+56) konosuba
 manga series:
-54) solo leveling: ragnarok
-55) penthouse
-56) water overflow
-57) step mothers freinds
-58) leviathon
-59) lookism
+57) solo leveling: ragnarok
+58) penthouse
+59) water overflow
+60) step mothers freinds
+61) leviathon
+62) lookism
